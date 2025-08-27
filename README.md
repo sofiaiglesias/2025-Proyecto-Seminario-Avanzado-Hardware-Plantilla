@@ -1,0 +1,1 @@
+# 2025-Proyecto-Seminario-Avanzado-Hardware-Plantilla
